@@ -15,3 +15,4 @@ Kimi wo Aishita Hitori no Boku e(anime)-Vol 1
 Make Heroine ga Oosugiru!(anime)  
 A Whisker Away(anime)  
 A Silent Voice(anime)
+Akame ga Kill(anime)
